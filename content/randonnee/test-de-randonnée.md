@@ -9,6 +9,8 @@ La veille, il a plu en abondance et vu la grisaille, je réoriente ma randonnée
 
 ### Frontière
 
+Un essais et de quattres 
+
 Le parking est généreux et il y a un panneau d'information historique sur les lieux.
 
 ### Refuge du Poteau
